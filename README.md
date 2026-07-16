@@ -11,7 +11,7 @@ Built and maintained by Waylay.
 
 ## Contact
 📞 +254 794 324 724 / +254 110 344 382
-📧 info@muessolutions.com
+📧 muesentertainment06@gmail.com
 📍 Nairobi, Kenya
 
 ---
